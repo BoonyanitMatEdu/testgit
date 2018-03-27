@@ -9,6 +9,10 @@ This is a new features.
 
 We love this ...yippee..!!
 
+Ta Da
+Ha Ha
+Yes
+
 OMG
 I am hungry
 Food...
